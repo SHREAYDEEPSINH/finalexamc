@@ -1,1 +1,5 @@
-# finalexamc
+# finalexamc![alt text](<WhatsApp Image 2024-02-08 at 13.04.33_68b067fb.jpg>)
+![alt text](<WhatsApp Image 2024-02-08 at 13.04.34_0c43093e.jpg>)
+![alt text](<WhatsApp Image 2024-02-08 at 13.04.34_ef771da6.jpg>)
+![alt text](<WhatsApp Image 2024-02-08 at 13.04.34_e76faee7.jpg>)
+![alt text](<Screenshot 2024-02-08 130730.png>)
